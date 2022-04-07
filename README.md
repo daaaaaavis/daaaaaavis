@@ -1,0 +1,5 @@
+- 👋 Hi, My Name is Dāvis Dieziņš
+- 👀 I’m interested in everything tech, project creation and management
+- 🌱 I strive towards essentialism and becoming better in every way
+- 💞️ I’m looking to collaborate on projects and freelancing oppurtunities
+- 📫 Reach me on daaaaaavis@gmail.com
